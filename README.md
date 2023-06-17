@@ -1,1 +1,1 @@
-The class od decision support analysis in my opinion was easier than the previous class that you need to pass in order to take this one. The professor cares about us so that we could learn and understand in the best way the topics he explained and he gave us personalized attention. 
+The class of decision support analysis in my opinion was easier than the previous class that you need to pass in order to take this one. The professor cares about us so that we could learn and understand in the best way the topics he explained and he gave us personalized attention. 
